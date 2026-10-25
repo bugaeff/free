@@ -15,11 +15,13 @@ Pick a shelf, take what you need.
 
 New tools land here with every video.
 
-## Want something built for your business?
+## Need something like this for your business?
 
-These are free. For your business I build AI agents and automations around how your team actually works.
+Made by **Sergey Bugaeff**, AI & Automation Consultant. These tools are free. For your business I build AI agents and automations around how your team actually works.
 
-**[Book a free 20-min call](https://cal.com/bugaeff/intro)** · [bugaeff.com](https://bugaeff.com) · [LinkedIn](https://linkedin.com/in/bugaeff) · [Telegram](https://t.me/Sergey_Bugaeff)
+**[Book a free 20-min call →](https://cal.com/bugaeff/intro)**
+
+[bugaeff.com](https://bugaeff.com) · [LinkedIn](https://linkedin.com/in/bugaeff)
 
 ## Free to use
 
